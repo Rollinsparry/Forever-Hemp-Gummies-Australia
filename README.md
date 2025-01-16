@@ -1,8 +1,7 @@
 <div class="markdown-heading" dir="auto">
 <h4 class="heading-element" dir="auto" tabindex="-1"><span lang="en-US"><strong>OFFICAIL WEBSITE&gt;&gt;&gt;</strong></span></h4>
-<h4>&nbsp;</h4>
 </div>
-<h1 class="heading-element" dir="auto" tabindex="-1"><span lang="en-US"><strong><a href="https://trendgadgetz.shop/forever-hemp-gummies-au-buy" rel="nofollow">https://trendgadgetz.shop/forever-hemp-gummies-au-buy</a></strong></span></h1>
+<h4 class="heading-element" dir="auto" tabindex="-1"><span lang="en-US"><strong><a href="https://trendgadgetz.shop/forever-hemp-gummies-au-buy" rel="nofollow">https://trendgadgetz.shop/forever-hemp-gummies-au-buy</a></strong></span></h4>
 <h1 class="heading-element" dir="auto" tabindex="-1"><span lang="en-US"><strong>FACEBOOK&gt;&gt;&gt;&gt;</strong></span></h1>
 <div class="markdown-heading" dir="auto">
 <h4 class="heading-element" dir="auto" tabindex="-1"><span lang="en-US"><strong><a href="https://www.facebook.com/ForeverHempGummiesAUAustralia/" rel="nofollow">https://www.facebook.com/ForeverHempGummiesAUAustralia/</a></strong></span></h4>
